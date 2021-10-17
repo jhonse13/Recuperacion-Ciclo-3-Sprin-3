@@ -1,1 +1,1 @@
-# Recuperacion-Ciclo-3-Sprin-3
+# Recuperacion-Ciclo-3-Sprint-3
